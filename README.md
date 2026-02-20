@@ -1,1 +1,2 @@
 # El-cumplimiento-de-la-ley-5944
+Acordaba pues gradualmente a Buenos Aires las dimensiones, en profundidad y extensión, que exigían el desarrollo de los hechos mencionados; Rosario se hallaba en plena prosperidad y Bahía Blanca, suficientemente ampliado, constituía un reducto y una reserva del F.C.S. Quiere decir que la terminación de la primera guerra mundial halló perfectamente estructurado al sistema portuario.
